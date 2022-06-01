@@ -2,4 +2,3 @@
 
 
 
-Loyiha hali tugatilmagan
